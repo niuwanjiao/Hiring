@@ -19,5 +19,6 @@
 &zwnj;**加分项**&zwnj;:  
 - 参与过扫地机器人项目
 ##
-&zwnj;**联系方式**&zwnj;:  
-monica.niu@bestwayhr.com（会及时回复，进一步沟通）
+&zwnj;**联系方式（会及时回复，进一步具体沟通）**&zwnj;:  
+- monica.niu@bestwayhr.com
+- 251173110@qq.com
